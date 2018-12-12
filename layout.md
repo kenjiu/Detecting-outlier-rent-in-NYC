@@ -17,6 +17,8 @@ figures/3
 fvrgun3bcqc.html
 nhuk223ippk.html
 t1jrdc2oac.html
+figures/4
+o981q01pn7g.html
 kidlkou2hm8.html
 qapqt49u7cg.html
 s7vanr6ujks.html
